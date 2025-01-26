@@ -7,6 +7,7 @@
 - 1 cup sugar
 - 1 cup water
 - 1 Cup tea
+- 1 tspoon salt
 
 ## How to Make
 
